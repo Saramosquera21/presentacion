@@ -1,4 +1,4 @@
-¡Conoceme!
+
 👋 Hola, soy Sara Mosquera 
 
 🎓 Bachiller técnica (2024) 
